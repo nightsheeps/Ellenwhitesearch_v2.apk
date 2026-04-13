@@ -1,1 +1,1 @@
-# Ellenwhitesearch_v2.apk
+証の文検索アプリ
